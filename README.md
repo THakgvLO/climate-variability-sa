@@ -44,3 +44,4 @@ For collaboration, feedback, or questions:
 - LinkedIn: [Thakgalo Sehlola](https://www.linkedin.com/in/thakgalo-sehlola)
 
 ---
+📄 [View Climate Variability Report (1964–2024)](./Assessing%20Climate%20Variability%20and%20Change%20in%20Pretoria%20_1964–2024_.pdf)
